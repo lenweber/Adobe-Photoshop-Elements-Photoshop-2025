@@ -1,2 +1,2 @@
-# Portable---Adobe-Photoshop-Elements---Photoshop-2025
+# Portable Adobe Photoshop Elements Photoshop 2025
 Photoshop
